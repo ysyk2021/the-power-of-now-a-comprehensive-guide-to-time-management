@@ -1,4 +1,4 @@
-Chapter 10: Strategies for Overcoming Time Management Obstacles
+Strategies for Overcoming Time Management Obstacles
 ===============================================================
 
 Time management can be a challenging endeavor due to various obstacles that can impede our progress and productivity. In this chapter, we will explore effective strategies for overcoming common time management obstacles and enhancing our ability to manage time wisely.

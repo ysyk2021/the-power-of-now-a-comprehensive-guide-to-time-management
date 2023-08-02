@@ -1,4 +1,4 @@
-Chapter 11: Tips for Maintaining Motivation and Commitment to Time Management
+Tips for Maintaining Motivation and Commitment to Time Management
 =============================================================================
 
 Maintaining motivation and commitment is crucial when it comes to effective time management. In this chapter, we will explore practical tips and strategies to help you stay motivated and committed to managing your time wisely.

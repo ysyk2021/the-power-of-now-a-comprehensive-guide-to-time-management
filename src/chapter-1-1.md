@@ -1,4 +1,4 @@
-Chapter 13: Importance of Time Management
+Importance of Time Management
 =========================================
 
 Time management is a critical skill that plays a vital role in our personal and professional lives. In this chapter, we will explore the importance of time management and how it can positively impact various areas of our lives.

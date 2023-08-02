@@ -1,4 +1,4 @@
-Chapter 9: Techniques for Practicing Mindfulness to Improve Time Management
+Techniques for Practicing Mindfulness to Improve Time Management
 ===========================================================================
 
 In the previous chapter, we explored the importance of mindfulness in effective time management. Now, let's delve into practical techniques that can help you cultivate mindfulness and integrate it into your daily life. By incorporating these techniques into your time management routine, you can enhance your focus, reduce stress, and optimize your productivity.

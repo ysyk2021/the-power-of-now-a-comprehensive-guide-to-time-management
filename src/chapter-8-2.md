@@ -1,4 +1,4 @@
-Chapter 9: Strategies for Effective Collaboration with Others to Manage Time
+Strategies for Effective Collaboration with Others to Manage Time
 ============================================================================
 
 Collaboration is an essential aspect of effective time management. When working with others, it's crucial to establish clear communication, foster synergy, and align efforts toward shared goals. In this chapter, we will explore strategies that can help you collaborate more effectively with others and optimize your collective use of time.

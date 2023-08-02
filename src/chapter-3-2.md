@@ -1,4 +1,4 @@
-Chapter 14: Strategies for Identifying Urgent and Important Tasks
+Strategies for Identifying Urgent and Important Tasks
 =================================================================
 
 In effective time management, it is crucial to identify tasks that are both urgent and important. By distinguishing between these tasks, we can prioritize our efforts and allocate our time and resources accordingly. In this chapter, we will explore strategies for identifying urgent and important tasks to optimize our productivity.

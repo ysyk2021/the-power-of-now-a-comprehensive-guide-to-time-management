@@ -1,4 +1,4 @@
-Chapter 8: Examples of Individuals Who Successfully Created Productive Schedules
+Examples of Individuals Who Successfully Created Productive Schedules
 ================================================================================
 
 In this chapter, we will explore real-life examples of individuals who have successfully created productive schedules to manage their time effectively. By examining these examples, we can gain insights into how to structure our own schedules and achieve optimal productivity. Let's delve into the stories of these successful individuals and learn from their strategies.
