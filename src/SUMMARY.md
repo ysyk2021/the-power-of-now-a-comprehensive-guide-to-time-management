@@ -2,7 +2,6 @@
 
 - [Chapter 1: Introduction](README.md)
   - [Importance of time management](chapter-1-1.md)
-  - [Overview of the book's contents](chapter-1-2.md)
 - [Chapter 2: Understanding Time Management](chapter-2.md)
   - [Definition of time management](chapter-2-1.md)
   - [Common misconceptions about time management](chapter-2-2.md)
