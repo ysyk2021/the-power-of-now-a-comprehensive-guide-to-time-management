@@ -35,3 +35,4 @@
   - [Techniques for practicing mindfulness to improve time management](chapter-9-2.md)
   - [Examples of individuals who achieved benefits from mindfulness in time management](chapter-9-3.md)
 - [Conclusion](conclusion.md)
+- [Contacts](contacts.md)
