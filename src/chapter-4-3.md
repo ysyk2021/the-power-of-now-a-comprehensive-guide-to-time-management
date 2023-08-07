@@ -6,8 +6,6 @@ In this chapter, we will explore real-life examples of individuals who have succ
 **1. Indra Nooyi - Former CEO of PepsiCo**
 ------------------------------------------
 
-![Indra Nooyi](https://images.unsplash.com/photo-1521791161296-2a5b01f8dc95)
-
 Indra Nooyi, the former CEO of PepsiCo, is known for her exceptional time management skills. Here's how she created a productive schedule:
 
 * Prioritization: Nooyi created a priority-based schedule by identifying the most critical tasks and allocating specific time slots for them.
@@ -16,8 +14,6 @@ Indra Nooyi, the former CEO of PepsiCo, is known for her exceptional time manage
 
 **2. Elon Musk - CEO of Tesla and SpaceX**
 ------------------------------------------
-
-![Elon Musk](https://images.unsplash.com/photo-1548499246-9ca9f0fc60f3)
 
 Elon Musk, the CEO of Tesla and SpaceX, is renowned for his ability to manage multiple ventures effectively. Here's how he created a productive schedule:
 
@@ -28,8 +24,6 @@ Elon Musk, the CEO of Tesla and SpaceX, is renowned for his ability to manage mu
 **3. Oprah Winfrey - Media Mogul**
 ----------------------------------
 
-![Oprah Winfrey](https://images.unsplash.com/photo-1500829245340-12c0ccaccf77)
-
 Oprah Winfrey, a media mogul with numerous successful ventures, has mastered the art of time management. Here's how she created a productive schedule:
 
 * Morning Routine: Winfrey starts her day early and dedicates time to self-care, meditation, and exercise, setting a positive tone for the day ahead.
@@ -39,8 +33,6 @@ Oprah Winfrey, a media mogul with numerous successful ventures, has mastered the
 **4. Bill Gates - Co-founder of Microsoft**
 -------------------------------------------
 
-![Bill Gates](https://images.unsplash.com/photo-1560807707-9bc68e8d7816)
-
 Bill Gates, the co-founder of Microsoft, is known for his exceptional time management skills and focus. Here's how he created a productive schedule:
 
 * Clear Goals: Gates sets clear goals and aligns his schedule with those objectives, ensuring that his time is spent on activities that contribute directly to those goals.
@@ -49,8 +41,6 @@ Bill Gates, the co-founder of Microsoft, is known for his exceptional time manag
 
 **5. Sheryl Sandberg - COO of Facebook**
 ----------------------------------------
-
-![Sheryl Sandberg](https://images.unsplash.com/photo-1626150104068-635e69aa3b60)
 
 Sheryl Sandberg, the COO of Facebook, is known for managing her time effectively amidst a demanding role. Here's how she created a productive schedule:
 
