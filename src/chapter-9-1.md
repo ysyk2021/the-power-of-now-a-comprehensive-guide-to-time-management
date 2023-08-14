@@ -3,11 +3,6 @@ Importance of Mindfulness in Effective Time Management
 
 In the fast-paced and hectic world we live in, effective time management has become crucial for maintaining productivity and achieving our goals. One powerful tool that can greatly enhance our ability to manage time efficiently is mindfulness. In this chapter, we will explore the significance of mindfulness in time management and how it can transform our approach to productivity.
 
-**What is Mindfulness?**
-------------------------
-
-Mindfulness refers to the practice of bringing one's attention to the present moment without judgment or attachment. It involves being fully aware of our thoughts, emotions, bodily sensations, and the surrounding environment, without being carried away by them. By cultivating mindfulness, we can develop a heightened sense of self-awareness and an improved ability to stay focused on the task at hand.
-
 **1. Cultivating Present Moment Awareness**
 -------------------------------------------
 
