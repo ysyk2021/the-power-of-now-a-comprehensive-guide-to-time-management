@@ -1,5 +1,3 @@
-Techniques for Prioritizing Tasks for Maximum Productivity
-======================================================================
 
 In order to achieve maximum productivity, it is essential to prioritize tasks effectively. By focusing on high-priority tasks and managing our time wisely, we can optimize our productivity and make significant progress towards our goals. In this chapter, we will explore various techniques for prioritizing tasks and enhancing our overall efficiency.
 

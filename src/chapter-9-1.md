@@ -1,5 +1,3 @@
-Importance of Mindfulness in Effective Time Management
-=================================================================
 
 In the fast-paced and hectic world we live in, effective time management has become crucial for maintaining productivity and achieving our goals. One powerful tool that can greatly enhance our ability to manage time efficiently is mindfulness. In this chapter, we will explore the significance of mindfulness in time management and how it can transform our approach to productivity.
 

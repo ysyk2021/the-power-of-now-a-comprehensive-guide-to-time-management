@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Effective time management is a crucial factor in achieving success and living a fulfilling life. In this chapter, we will discuss the importance of time management and provide an overview of the book's contents.
 

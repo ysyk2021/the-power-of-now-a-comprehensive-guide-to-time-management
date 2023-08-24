@@ -1,5 +1,3 @@
-Chapter 4: Creating a Productive Schedule
-=========================================
 
 In order to effectively manage your time, it is crucial to create a productive schedule. In this chapter, we will discuss various techniques and strategies for creating a productive schedule.
 

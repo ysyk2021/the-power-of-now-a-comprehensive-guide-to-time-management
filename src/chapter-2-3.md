@@ -1,5 +1,3 @@
-Benefits of Effective Time Management
-===============================================================================
 
 In this chapter, we will explore the benefits of effective time management and why it is important for individuals to master this skill.
 

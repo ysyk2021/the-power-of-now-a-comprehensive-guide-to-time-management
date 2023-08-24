@@ -1,4 +1,3 @@
-# Introduction
 
 "The Power of Now: A Comprehensive Guide to Time Management" is a book that offers practical tips and strategies for managing time effectively. The book is designed for anyone looking to improve their productivity, reduce stress and anxiety, and achieve their goals.
 

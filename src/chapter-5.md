@@ -1,5 +1,3 @@
-Chapter 5: Effective Goal-Setting for Time Management
-=====================================================
 
 In order to effectively manage your time, it is crucial to set clear and achievable goals. In this chapter, we will discuss various techniques and strategies for effective goal-setting in relation to time management.
 

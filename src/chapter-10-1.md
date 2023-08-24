@@ -1,5 +1,3 @@
-Summary of Key Points
-==============================================
 
 In this comprehensive guide to time management, we have explored various strategies and techniques for managing time effectively. Here is a summary of the key points covered in each chapter:
 

@@ -1,5 +1,3 @@
-Common Misconceptions About Time Management
-======================================================
 
 Time management is a topic often discussed and sought after by individuals striving to enhance their productivity and achieve their goals. However, there are several common misconceptions surrounding time management that can hinder our understanding and implementation of effective practices. In this chapter, we will explore some of these misconceptions and debunk them to help you develop a more accurate perspective on time management.
 

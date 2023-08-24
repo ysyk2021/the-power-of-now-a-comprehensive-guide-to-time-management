@@ -1,5 +1,3 @@
-Techniques for Effective Goal-Setting in Relation to Time Management
-================================================================================
 
 Goal-setting is a fundamental aspect of effective time management. In this chapter, we will explore techniques and strategies to help you set goals that align with your time management efforts and maximize your productivity.
 

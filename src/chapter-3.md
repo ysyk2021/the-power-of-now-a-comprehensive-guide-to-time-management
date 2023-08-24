@@ -1,5 +1,3 @@
-Chapter 3: Techniques for Prioritizing Tasks
-============================================
 
 In order to effectively manage your time, it is crucial to prioritize your tasks. In this chapter, we will discuss various techniques and strategies for prioritizing tasks.
 

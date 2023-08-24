@@ -1,5 +1,3 @@
-Examples of Individuals Who Successfully Prioritized Tasks Using These Techniques
-===============================================================================================================================
 
 In this chapter, we will look at some examples of individuals who successfully prioritized tasks using the techniques and strategies we discussed in Chapter 3.
 

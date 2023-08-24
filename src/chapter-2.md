@@ -1,5 +1,3 @@
-Chapter 2: Understanding Time Management
-========================================
 
 In this chapter, we will explore the concept of time management and its importance in our daily lives.
 

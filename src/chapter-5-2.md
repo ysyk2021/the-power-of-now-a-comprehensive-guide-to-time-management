@@ -1,5 +1,3 @@
-Strategies for Breaking Down Goals into Manageable Tasks
-===================================================================
 
 Setting goals is an essential component of effective time management. However, without breaking down these goals into manageable tasks, they can feel overwhelming and challenging to achieve. In this chapter, we will explore strategies for breaking down goals into actionable and achievable tasks.
 

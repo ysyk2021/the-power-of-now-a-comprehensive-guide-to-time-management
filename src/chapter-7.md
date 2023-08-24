@@ -1,5 +1,3 @@
-Chapter 7: Overcoming Obstacles to Time Management
-==================================================
 
 Obstacles are a common challenge that individuals face when trying to manage their time effectively. In this chapter, we will discuss some of the most common obstacles to effective time management and provide strategies for overcoming them.
 

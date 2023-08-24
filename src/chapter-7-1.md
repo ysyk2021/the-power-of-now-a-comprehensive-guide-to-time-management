@@ -1,5 +1,3 @@
-Common Obstacles to Effective Time Management
-========================================================
 
 Time management is a valuable skill that can significantly enhance our productivity and success. However, numerous obstacles can hinder our ability to effectively manage our time. In this chapter, we will explore some common obstacles to effective time management and provide strategies to overcome them.
 
