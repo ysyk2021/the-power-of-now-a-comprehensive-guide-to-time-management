@@ -8,3 +8,7 @@ This comprehensive guide provides insights into the importance of time managemen
 Whether you are a student, entrepreneur, or professional, "The Power of Now" can help you take control of your life and achieve your goals. By reading this book, you will gain valuable insights and guidance on how to manage your time effectively, reduce stress, and increase productivity.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
