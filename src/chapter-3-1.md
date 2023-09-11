@@ -1,5 +1,4 @@
-Chapter: Techniques for Prioritizing Tasks for Maximum Productivity
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Now: A Comprehensive Guide to Time Management," we will explore various techniques that can help individuals prioritize tasks effectively, leading to maximum productivity. These techniques are designed to assist in managing time efficiently, focusing on high-value activities, and achieving desired goals.
 
